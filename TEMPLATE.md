@@ -2,7 +2,7 @@
 
 ### About Me
 
-> write about your self .................. (minimum 200 Characters)
+> I am Anakha V S.I graduated from LBS INSTITUE OF TECHNOLOGY FOR WOMEN.
 
 
 ## Portfolio Highlights
